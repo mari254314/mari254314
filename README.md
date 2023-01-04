@@ -1,4 +1,4 @@
-## Oii, sou a Mariana Araújo!  <img align="right" alt="Mari-gif" height="100" width="100" src="https://i.picasion.com/pic92/fa9125b63f058e4e9ed86444c96f31e4.gif">
+## _Oii, Mariana por aqui!_  <img align="right" alt="Mari-gif" height="100" width="100" src="https://i.picasion.com/pic92/fa9125b63f058e4e9ed86444c96f31e4.gif">
 
 <div align="center">
   <a href="https://github.com/mari254314">
